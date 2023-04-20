@@ -1,1 +1,3 @@
-# Fixing-Everything
+# Big Ticket Items:
+- Religion
+- Politics
