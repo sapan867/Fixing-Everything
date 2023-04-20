@@ -3,4 +3,4 @@
 - Politics
 
 # Course of Action:
-- Just join and show support (nothing else): https://www.reddit.com/r/Fixing_Everything/
+- Just join and show support: https://www.reddit.com/r/Fixing_Everything/
